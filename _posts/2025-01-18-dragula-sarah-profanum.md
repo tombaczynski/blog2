@@ -16,7 +16,6 @@ Tako rzecze kard. Sarah: „Bóg znika z naszych społeczeństw, przestaje się 
 
 [https://www.facebook.com/a.dragula/posts/pfbid024xHr6MeZjRh4Dkry4Z3NmEZYXtUsvU3twtawgzU8a](https://www.facebook.com/a.dragula/posts/pfbid024xHr6MeZjRh4Dkry4Z3NmEZYXtUsvU3twtawgzU8a)
 
-
 <!--
 - **Pogrubiony tekst**: '**tekst**'
 - *Kursywa*: '*tekst*'
